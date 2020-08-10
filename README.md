@@ -4,19 +4,22 @@ Just getting started with some embodiment learnings from Rafe Kelly's Embodiment
 ## Emmbodiment Summit
 Put on my Rafe Kelly and crew.
 
+## Legend
+- ⭐: Brendan Liked
+
 #### Kick Off
 
 ### Day 1
 
 #### David Flemming
 
-#### Sebastien Foucan
+#### Sebastien Foucan ⭐
 
 #### John Vervaeke
 
 #### Paul Chek
 
-#### Ryan Hurst
+#### Ryan Hurst ⭐
 
 ### Day 2
 
@@ -40,9 +43,9 @@ Put on my Rafe Kelly and crew.
 
 #### Yuri Marmerstien
 
-#### Chandler Stevens
+#### Chandler Stevens ⭐
 
-#### Julie Angel
+#### Julie Angel ⭐
 
 #### Simon Thakur
 
