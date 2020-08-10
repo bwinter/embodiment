@@ -56,6 +56,7 @@ Embodiment defined.
 Very positive view of sustainable embodiment.
 
 #### Simon Thakur
+How movement can open empathy.
 
 ### Day 4
 
@@ -64,6 +65,8 @@ Very positive view of sustainable embodiment.
 #### Laurent Piemontesi
 
 #### Emory M. Moore Jr.
+
+#### Happy Hour
 
 #### Rafe Kelly
 
@@ -86,5 +89,3 @@ Very positive view of sustainable embodiment.
 ### Bonus
 
 #### Closing Pannel
-
-#### Happy Hour
