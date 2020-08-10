@@ -4,6 +4,8 @@ Just getting started with some embodiment learnings from Rafe Kelly's Embodiment
 ## Emmbodiment Summit
 Put on my Rafe Kelly and crew.
 
+This summit has a common theme of sutainable practice: from the perspective of both physical durability and participation stamina.
+
 ## Legend
 - ⭐: Brendan Liked
 
@@ -14,24 +16,28 @@ Put on my Rafe Kelly and crew.
 #### David Flemming
 
 #### Sebastien Foucan ⭐
+You must play.
 
 #### John Vervaeke
 
 #### Paul Chek
 
 #### Ryan Hurst ⭐
+Take time to explore: with focus, simple movement becomes complex.
 
 ### Day 2
 
 #### Kyle Koch
 
 #### Kelly Starrett
+Foam rolling & breating.
 
 #### Martha Eddy
 
 #### Aaron Cantor
 
 #### Brandee Laird
+Katas
 
 #### Soisci Porchetta
 
@@ -44,8 +50,10 @@ Put on my Rafe Kelly and crew.
 #### Yuri Marmerstien
 
 #### Chandler Stevens ⭐
+Embodiment defined.
 
-#### Julie Angel ⭐
+#### Julie Angel (PhD) ⭐
+Very positive view of sustainable embodiment.
 
 #### Simon Thakur
 
