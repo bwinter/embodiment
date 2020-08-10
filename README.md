@@ -1,4 +1,5 @@
 # Embodiment Stidies
+Just getting started with some embodiment learnings from Rafe Kelly's Embodiment Summit.
 
 ## Emmbodiment Summit
 Put on my Rafe Kelly and crew.
