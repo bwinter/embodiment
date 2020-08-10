@@ -1,2 +1,1 @@
-# embodyment
-Place for embodiment notes.
+# Embodyment Stidies
