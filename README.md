@@ -40,14 +40,17 @@ Foam rolling & breating.
 Katas
 
 #### Soisci Porchetta
+Kick boxer, holistic practice. (rewatch?)
 
 ### Day 3
 
 #### Tom Weksler
+Fluid movement.
 
 #### Mark Walsh
 
 #### Yuri Marmerstien
+Exercise for all levels - handstands, cartwheels, jumping. Some meta as well (need to rewatch)
 
 #### Chandler Stevens ⭐
 Embodiment defined.
@@ -61,8 +64,10 @@ How movement can open empathy.
 ### Day 4
 
 #### Jozef Frucek
+Sort of hard for me to follow. Will need to rewatch.
 
 #### Laurent Piemontesi
+Squat exercises (my butt is sore but I can jump further)
 
 #### Emory M. Moore Jr.
 
