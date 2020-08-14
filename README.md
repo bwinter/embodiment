@@ -71,6 +71,7 @@ Squat exercises (my butt is sore but I can jump further)
 
 #### Emory M. Moore Jr. ⭐
 Connecting all movement practices.
+- Brotherhood of breath
 
 #### Happy Hour
 
