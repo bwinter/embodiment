@@ -74,6 +74,10 @@ Connecting all movement practices.
 - Brotherhood of breath
 
 #### Happy Hour
+- Play
+- Novelty
+- Nature
+- Exploration
 
 #### Rafe Kelly
 
