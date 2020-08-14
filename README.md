@@ -69,7 +69,8 @@ Sort of hard for me to follow. Will need to rewatch.
 #### Laurent Piemontesi
 Squat exercises (my butt is sore but I can jump further)
 
-#### Emory M. Moore Jr.
+#### Emory M. Moore Jr. ⭐
+Connecting all movement practices.
 
 #### Happy Hour
 
