@@ -71,7 +71,7 @@ Squat exercises (my butt is sore but I can jump further)
 
 #### Emory M. Moore Jr. ⭐
 Connecting all movement practices.
-- Brotherhood of breath
+- "Brotherhood of breath"
 
 #### Happy Hour
 - Play
@@ -79,7 +79,8 @@ Connecting all movement practices.
 - Nature
 - Exploration
 
-#### Rafe Kelly
+#### Rafe Kelly ⭐
+Really resinates with my own views of physicality.
 
 #### Marlo Fisken
 
