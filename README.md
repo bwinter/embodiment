@@ -72,6 +72,7 @@ Squat exercises (my butt is sore but I can jump further)
 #### Emory M. Moore Jr. ⭐
 Connecting all movement practices.
 - "Brotherhood of breath"
+Got a little into "energy" towards the end but I think the underlying idea is still intersting.
 
 #### Happy Hour
 - Play
@@ -82,7 +83,8 @@ Connecting all movement practices.
 #### Rafe Kelly ⭐
 Really resinates with my own views of physicality.
 
-#### Marlo Fisken
+#### Marlo Fisken ⭐
+Getting over social pressure to avoid sexy dance.
 
 #### Todd Hargrove
 
