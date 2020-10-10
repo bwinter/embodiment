@@ -1,4 +1,4 @@
-# Embodiment Stidies
+# Embodiment Studies
 Just getting started with some embodiment learnings from Rafe Kelly's Embodiment Summit.
 
 ## Emmbodiment Summit
